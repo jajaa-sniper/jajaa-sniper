@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jajaa-sniper
 - 👀 I’m interested in JKT48
-- 🌱 I’m currently learning hacker
+- 🌱 I’m currently learning hack
 - 💞️ I’m looking to collaborate on -
 - 📫 How to reach me -
 - 😄 Pronouns: -
